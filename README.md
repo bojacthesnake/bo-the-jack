@@ -1,2 +1,6 @@
-# bo-the-jack
-First github repos; for learning purposes only
+#a new branch from the master
+
+im lonely as fuck boii 
+BIG :(
+
+lonely af being new here at github
